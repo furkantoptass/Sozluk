@@ -1,0 +1,2 @@
+# İngilizceSozluk
+ Sozluk
